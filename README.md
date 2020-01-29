@@ -1,3 +1,2 @@
-# -
-学习新知识
-chinanese culture is so great！
+
+chinese culture is so great！
